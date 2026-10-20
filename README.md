@@ -1,1 +1,1 @@
-# hackathon-sieg
+# hackathon-siegg
